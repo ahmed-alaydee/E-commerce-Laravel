@@ -16,7 +16,7 @@ my skills:
 - Postman
 - Figma
 
-clall me 01006082709
+call me 01006082709
 my email( ahmedalayde86@gmail.com )
 
 
